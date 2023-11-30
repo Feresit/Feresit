@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Feresit
-- 👀 I’m interested in ...Cyber Security
+- 👀 I’m interested in ... Security
 - 🌱 I’m currently learning ... "IT"
 - 💞️ I’m looking to collaborate on ... "Your Mind"
 - 📫 How to reach me ... "Everywhere"
